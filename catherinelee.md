@@ -5,3 +5,4 @@ Catherine Lee is a Computer Science major interested in being involved with all 
 
 
  
+![](https://github.com/Slugbotics/onboarding/blob/master/pictures/catherinelee.jpg)
