@@ -5,4 +5,4 @@ Catherine Lee is a Computer Science major interested in being involved with all 
 
 
  
-![](https://1drv.ms/u/s!AvYWI6hw_Rk4rCmqDFkQK6T8pino )
+![Pic](https://1drv.ms/u/s!AvYWI6hw_Rk4rCmqDFkQK6T8pino "pic")
