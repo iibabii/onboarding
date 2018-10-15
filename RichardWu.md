@@ -1,0 +1,1 @@
+This is Richard Wu. He is a first year computer science major with only computerscience experience from APCS in high school. His greatest life accomplishment is pathetically but a connect four game he made in java. Also pie tastes pretty good.
