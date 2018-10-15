@@ -1,0 +1,1 @@
+Jack Lin is a first year Electrical Engineering major and is affiliated with Merrill College. He is new to coding, but is eager to learn the skills and knowledge required to write effective code. He has 2 years of experience being in his high school VEX Robotics team. In his free time, Jack likes to read books (fantasy, sci-fi), play video games, and collect cute plushies.
