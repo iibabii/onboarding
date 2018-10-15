@@ -1,0 +1,1 @@
+Surya Auroprem is a first-year computer engineering major. He has done FLL, FTC and FRC, concentrating on software. He has also done work with Arduino. Surya also enjoys biking, listening to music, and sleeping. Surya is interested in aerospace engineering and aircraft control systems. 
