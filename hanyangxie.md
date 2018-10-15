@@ -1,2 +1,2 @@
 Hanyang Xie
-Computer Science
+He is a Computer Science major, and he is interested in coding.
